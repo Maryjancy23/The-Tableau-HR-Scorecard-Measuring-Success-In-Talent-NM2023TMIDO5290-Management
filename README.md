@@ -1,0 +1,1 @@
+# The-Tableau-HR-Scorecard-Measuring-Success-In-Talent-NM2023TMIDO5290-Management
